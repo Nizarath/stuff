@@ -3,4 +3,6 @@
   (совершенно уникальное явление)
 - атмосферные тяжелые исполнения на волынке в парке и возле метро (А. Шкуропатский из группы FRAM)
 
-про легкий рок и пр. -- в целом не мое
+Отдельные ссылки:\
+[Хомяки](https://drive.google.com/drive/folders/1zhqRXW3N8yHfBXCxeh1ldUOJBqlNr0ji?usp=sharing)\
+[Alex Clover (FRAM)](https://drive.google.com/drive/folders/1mLo9xf4VUTbHL9-uMsxWEm_AfySv1VS0?usp=sharing) -- кучу материала разгребать, на несколько уличных концертов
